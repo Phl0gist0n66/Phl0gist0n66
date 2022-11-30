@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Phl0gist0n66
-- 👀 I’m interested in coding, 3d printing, 3d modeling, woodworking
+- 👀 I’m interested in coding, 3d printing, 3d modeling, woodworking, engraving
 - 🌱 I’m currently learning everything that coincides with my interests
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
